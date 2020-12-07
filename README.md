@@ -9,8 +9,8 @@ WHY DID I BUILD THIS?
   4) I know it will be useful.
   
 WHAT JOBS DOES THE BOT RETWEET?
-TT and PostDoc positions in the humanities, specifically African American lit, African Lit, Africana Lit, World Lit, Global Anglophone Lit, Poetry and Poetics, Digital Humanities, and Media Studies.
+  TT and PostDoc positions in the humanities, specifically African American lit, African Lit, Africana Lit, World Lit, Global Anglophone Lit, Poetry and Poetics, Digital Humanities, and Media Studies.
   
 QUESTIONS
-DM the Bot or me @AmaBemma 
+  DM the Bot or me @AmaBemma 
   
